@@ -1,4 +1,4 @@
-# Hey there, I'm Breanna (she/her)! 👋🏾
+# Hey there, i'm Breanna (she/her)! 👋🏾
 I'm a Computer & Entrepreneurship major @ Northeastern University 🐾. At the moment I am still figuring out what my niche is in the tech world, but I know that I love to code. When I'm not in classes or working I am usually expanding my knowledge on front-end frameworks such as React.js and Angular. I also spend my time diversifying the tech and entrepreneurial ecosystems to create a world without boundaries 🌍! 
 
 Outside of my professional life I can usually be found at any concert or music festival 🎵. (Big fan of Alternative music over here!) Or playing video games likes Animal Crossing, Age of Empires 2, and Legend of Zelda 🎮.
